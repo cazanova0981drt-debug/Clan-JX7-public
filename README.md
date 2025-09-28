@@ -1,1 +1,0 @@
-# Clan-JX7-public
